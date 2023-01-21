@@ -11,5 +11,5 @@ https://cdn.discordapp.com/attachments/1057466685877137459/1057466761609498756/G
 https://cdn.discordapp.com/attachments/1057466685877137459/1057469929793785897/cdshowcase.mp4
 https://cdn.discordapp.com/attachments/1057466685877137459/1057742702709579776/Growtopia_-_Copy_8GMzkHmdnl.mp4
 https://cdn.discordapp.com/attachments/1057466685877137459/1057761729272107078/NVIDIA_Share_FqyHnPGg4a.mp4
-and alot of shadowbans!!!
-cd and daw do not work properly, but you can try to fix those yourself
+
+and alot of shadowbans!!! cd and daw do not work properly, but you can try to fix those yourself
